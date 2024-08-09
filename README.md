@@ -1,5 +1,5 @@
-# Meu-primeiro-projeto-
-CARRETEIRO DE CHARQUE
+# Meu-primeiro-projeto- 
+CARRETEIRO DE CHARQUE 🤠 🍚
 
 5 porções / 40min
 1/5kg de charque
